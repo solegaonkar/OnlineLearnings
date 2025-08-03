@@ -1,5 +1,7 @@
 Very good content. Notes below.
 
+<img width="1600" height="1190" alt="image" src="https://github.com/user-attachments/assets/5588570e-8131-4a59-84a5-4858dd382531" />
+
 ## Introduction to Influence
 
 ## How to engage your audience
